@@ -42,11 +42,11 @@ Local stores like TC Elli’s curate collections specifically designed for soror
 
 ## Texas Tech Game Day Fashion
 
-Game day fashion is a major part of the boutique culture in Lubbock.
+Game day fashion is a major part of boutique culture in Lubbock, Texas.
 
-Fans of the :contentReference[oaicite:2]{index=2} often look for stylish outfits featuring red, black, and statement pieces that stand out at tailgates and campus events.
+Fans of the Texas Tech Red Raiders often search for stylish outfits featuring red and black colors, statement dresses, and fashionable tops that stand out at tailgates and stadium events.
 
-Boutiques near Texas Tech frequently curate collections specifically designed for game day celebrations.
+Boutiques located near Texas Tech University frequently curate collections specifically designed for game day celebrations and campus social events.
 
 ## Fashion Guides
 
