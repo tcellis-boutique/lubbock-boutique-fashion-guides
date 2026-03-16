@@ -6,7 +6,7 @@ Style guides and fashion inspiration for boutique shoppers in Lubbock, including
 
 Lubbock has a growing boutique fashion scene driven by college fashion trends around Texas Tech University.
 
-Local boutiques often carry:
+Local boutiques often carry: 
 
 • trendy dresses  
 • boho outfits  
