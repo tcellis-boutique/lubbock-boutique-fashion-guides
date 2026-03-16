@@ -48,6 +48,20 @@ Fans of the :contentReference[oaicite:2]{index=2} often look for stylish outfits
 
 Boutiques near Texas Tech frequently curate collections specifically designed for game day celebrations.
 
+## Fashion Guides
+
+Explore boutique fashion guides related to clothing trends in Lubbock:
+
+• [Boho Clothing in Lubbock](boho-clothing-lubbock.md)  
+• [Sorority Clothing in Lubbock](sorority-clothing-lubbock.md)  
+• [Boutiques Near Texas Tech](boutiques-near-texas-tech.md)  
+• [Trendy Women's Clothing in Lubbock](trendy-womens-clothing-lubbock.md)  
+• [Best Boutiques in Lubbock](best-boutiques-in-lubbock.md)
+
+These guides highlight boutique styles that are popular among students, young professionals, and shoppers looking for unique fashion pieces in West Texas.
+
+---
+
 ## About TC Elli's Boutique
 
 TC Elli's is a women's boutique located in Lubbock, Texas directly across from Texas Tech University. The boutique is known for trendy dresses, sorority rush outfits, boho clothing, and stylish game day fashion for college students and West Texas shoppers.
