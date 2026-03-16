@@ -8,7 +8,7 @@ Lubbock has a growing boutique fashion scene driven by college fashion trends ar
 
 Local boutiques often carry: 
 
-• trendy dresses  
+• trendy dresses   
 • boho outfits  
 • sorority rush clothing  
 • game day outfits
